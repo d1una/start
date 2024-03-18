@@ -11,5 +11,4 @@ my level of interest may supersede my knowledge
 
 https://www.linkedin.com/in/diego7luna/
 
-may the influence of my current self seep into my product to be cast onto all of my selves
 thank you
